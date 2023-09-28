@@ -1,3 +1,3 @@
 Boleh coba geser!!
 
-    ammil://yhkfl.zex/scpG7AriqAkWkfl1v
+    nzzvy://luxsy.mrk/fpcT7NevdNxJxsy1G
