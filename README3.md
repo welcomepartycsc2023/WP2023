@@ -1,3 +1,3 @@
 Boleh coba geser!!
 
-    cookn://ajmhn.bgz/uerI7CtksCmYmhn1a
+    seead://qzcxd.rwp/kuhY7SjaiScOcxd1L
