@@ -1,7 +1,7 @@
 Boleh coba geser!!
 
- 	lxxtw://jsvqw.kpi/dnaR7Lctbkxvvqw1E
+ 	nzzvy://luxsy.mrk/4jby60LShGjIzRAR6
 
-	ammil://yhkfl.zex/9xCd2vFOpI1lkDbj5
+	zllhk://xgjek.ydw/4vnffaQEpSvTlDMD6
 
-	seead://qzcxd.rwp/kuhY7SjaiScOcxd1L
+	seead://qzcxd.rwp/kuhY7Xij9ScOcxd1L
